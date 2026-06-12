@@ -62,9 +62,8 @@
 
 ### Website
 - https://thearafat.xyz
+- https://cyberarafat.top
 
-### Blog
-- https://editorarafat69.blogspot.com
 
 ### YouTube
 - Cyber Arafat
